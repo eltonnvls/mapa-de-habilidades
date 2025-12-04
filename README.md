@@ -43,6 +43,6 @@
 
 > Conversar com pequenos negócios da região que precisam de ajuda com marketing digital.
 
-Dar aulas ou mentorias
+> Dar aulas ou mentorias
 
-Oferecer cursos online sobre organização pessoal e uso de ferramentas digitais.
+> Oferecer cursos online sobre organização pessoal e uso de ferramentas digitais.
